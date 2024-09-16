@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @simkreative
-- 👀 I’m interested in Studying
+- 👀 I’m a graphic designer/Visual brand Identity Designer
 - 🌱 I’m currently learning Advance Copywriting Skill
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
